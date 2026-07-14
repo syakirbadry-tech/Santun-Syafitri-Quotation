@@ -26,10 +26,9 @@ This is a quotation for PruBSN AnugerahMax insurance product provided by Asbenz 
 
 ## 📞 Contact Information
 
-**Asbenz Motors** | Mercedes-Benz Authorized Dealer  
-📧 Email: [your-email@asbenz.com]  
-📱 Phone: [your-phone-number]  
-🏢 Address: [Your dealership address]
+**Syakir Badri ** | PRUBSN Takaful Agent 
+📧 Email: syakirbadry@gmail.com  
+📱 Phone: +6010-2602427  
 
 ---
 
